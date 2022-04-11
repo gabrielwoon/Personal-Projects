@@ -1,2 +1,2 @@
 # Personal-Article
-Article: Investing In A Sustained Inflationary Environment
+Article: Investing in a Sustained Inflationary Environment
